@@ -1,1 +1,0 @@
-# thai-3d-models
